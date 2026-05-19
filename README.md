@@ -23,6 +23,19 @@ using LASER WELDING
 
 
 
-<img width="426" height="393" alt="image" src="https://github.com/user-attachments/assets/36732d76-7221-4cfa-ada3-a96f4b871a84" />
-<img width="252" height="350" alt="image" src="https://github.com/user-attachments/assets/06a1ed7a-37a5-4905-b5b4-af74ba26e854" />
+https://github.com/user-attachments/assets/b34cbea4-bdd5-4436-9d68-2983e953c394
+
+
+
+
+
+https://github.com/user-attachments/assets/e9affd2a-5fad-4982-a94c-7d8ac87720c3
+
+<img width="1600" height="1200" alt="IMG-20250201-WA0038" src="https://github.com/user-attachments/assets/ff53e317-f530-4adf-8a93-5cbd7c354851" />
+
+<img width="1600" height="1200" alt="IMG-20250201-WA0029" src="https://github.com/user-attachments/assets/454fe5c3-5d0a-4296-9e62-c580ceb415db" />
+
+
+<img width="1280" height="960" alt="IMG-20250130-WA0022" src="https://github.com/user-attachments/assets/f1097e92-a0a0-45c4-9e62-c152aa8a49a8" />
+
 <img width="643" height="771" alt="image" src="https://github.com/user-attachments/assets/30a91d04-2882-46fc-acff-2999b7280d77" />
